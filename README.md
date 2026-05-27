@@ -6,7 +6,7 @@
 
 Transformo ideias em estratégias visuais e campanhas que fortalecem marcas, aumentam alcance e geram resultados reais.
 
-[📧 Email](#) • [🔗 LinkedIn](#) • [🌐 Portfólio](#) • [📱 Instagram](#)
+[📧 Email](#) • [🌐 Portfólio](#) • [📱 Instagram](#)
 
 </div>
 
@@ -79,7 +79,10 @@ Gestão de tráfego pago, landing pages e otimização de campanhas focadas em v
 
 ## 🎓 Formação & Certificações
 
-*Informações a serem adicionadas*
+*Google Ateliê Digital*,
+*Google Skillshop*,
+*EBAC*,
+*Origamid*,
 
 ---
 
@@ -95,7 +98,7 @@ Está buscando fortalecer a presença digital da sua marca? Posso ajudar você a
 
 <div align="center">
 
-**[📧 Entrar em Contato](mailto:seu-email@gmail.com)** • **[🌐 Visitar Portfólio](#)** • **[🔗 LinkedIn](#)**
+**[📧 Entrar em Contato](kaikyguedes83@gmail.com)** • **[🌐 Visitar Portfólio](#)** •
 
 </div>
 
